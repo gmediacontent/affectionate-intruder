@@ -1,1 +1,2 @@
-# affectionate-intruder
+# Affectionate Intruder
+"Une relation romantique entre nous ? Absolument aucune chance." Après avoir perdu sa famille dans un tragique accident lorsqu'elle était enfant, Jung Yihan a été élevée par la famille de Han Chi-oh. Aujourd'hui, elle se retrouve à vivre avec le garçon avec lequel elle a grandi, qui est devenu de plus en plus maladroit avec elle au fur et à mesure qu'ils grandissaient. Comment leur relation va-t-elle évoluer lorsqu'ils commenceront à se glisser dans les cœurs soigneusement gardés de l'un et de l'autre ?
